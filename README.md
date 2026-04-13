@@ -7,7 +7,7 @@ My name is Nat, and currently, I have few projects going on which is not big, ju
 - Trying to be a good developer even tho i am still very noob lol (yes, that is my project)
 
 ## My socials:
-Telegram: (actually, i usually change usernames often, so, just check my chanmel: stuff_dumper)
+Telegram: (actually, i usually change usernames often, so, just check my channel: stuff_dumper)
 
 
 ### Well, thats all i can tell you for now, have a good day :D
